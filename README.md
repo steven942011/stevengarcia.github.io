@@ -1,2 +1,0 @@
-# stevengarcia.github.io
-Portafolio 
